@@ -1,0 +1,2 @@
+# ahmad
+Katakan tidak
